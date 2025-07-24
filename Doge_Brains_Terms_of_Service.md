@@ -2,9 +2,9 @@
 
 **DOGE BRAINS PLATFORM**
 
-**Last Updated: 22.07.2025
+**Last Updated: 22.07.2025**
 
-**Effective Date: 22.07.2025
+**Effective Date: 22.07.2025**
 
 ## 1. ACCEPTANCE OF TERMS
 
